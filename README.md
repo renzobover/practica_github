@@ -1,3 +1,3 @@
 # practica_github
-
+Hola Gente se me corta el zoom a cada rato.....
 Hugo Sotuyo
